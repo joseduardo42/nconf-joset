@@ -1,1 +1,1 @@
-This conf was based at ThePrimegean video.
+This conf was based at ThePrimegen video.
